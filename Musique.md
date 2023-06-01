@@ -34,3 +34,8 @@ You taught me how
 You are always gonna be the one
 まだ悲しい love song, yeah-yeah
 Now and forever
+
+## tournée
+Utada annonce son retour en janvier 2016, enregistrant ensuite deux titres qui servent de génériques à des programmes télévisés.
+
+Le 28 septembre 2018, Utada annonce la sortie de Face My Fears, thème d'introduction de Kingdom Hearts 3, en collaboration avec Skrillex et Poo Bear. Le thème de fin s'intitule Chikai (Don't Think Twice pour la version anglaise), également présent dans son septième album japonais : Hatsukoi (初恋), sorti le 27 juin 2018 au Japon20,21.
