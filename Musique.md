@@ -1,4 +1,4 @@
-#  Hikaru Utada
+#  Hikaru Utada japon
 ## First Love (1999)
 
 最後のキスはタバコの flavor がした
