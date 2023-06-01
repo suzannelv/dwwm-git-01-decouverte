@@ -50,3 +50,9 @@ You taught me how
 You are always gonna be the one
 まだ悲しい love song, yeah-yeah
 Now and forever
+## Recompense
+Utada fait son coming-out non binaire en juin 2021, en commentant son nouvel album, Bad Mode, durant une interview avec Zane Lowe22.
+
+Divers
+
+Les chansons First love et Hatsukoi ont inspiré la série romantique First love : hatsukoi sortie sur Netflix le 24 novembre 202223.
