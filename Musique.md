@@ -1,4 +1,5 @@
-#  Hikaru Utada japon
+#  Hikaru Utada (Japon)
+Surnom, Utada, Hikki, Cubic U ; Nom de naissance, Utada Hikaru (宇多田ヒカル) ; Naissance, 19 janvier 1983 (40 ans) New York (États-Unis).
 ## First Love (1999)
 
 最後のキスはタバコの flavor がした
